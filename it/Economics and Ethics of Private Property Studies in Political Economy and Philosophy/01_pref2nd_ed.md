@@ -7,5 +7,5 @@ La prima edizione di *The Economics and Ethics of Private Property*, pubblicata 
 La seguente edizione di *The Economics and Ethics of Private Property* è stata ampliata. Aggiunge quattro articoli scritti dopo la pubblicazione originale del libro, ma in relazione tematica al tema centrale della logica economica ed etica dell'istituzione della proprietà privata - capitoli 6, 7, 8 e 15. L'opportunità di una nuova edizione è stata anche utilizzata per apportare miglioramenti editoriali significativi e revisioni.
 
 Hans Hermann Hoppe
-
+a
 *Las Vegas, Nevada, 2005*
